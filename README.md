@@ -1,0 +1,2 @@
+# kodluyoruzilkrepo.
+Kodluyorz f
